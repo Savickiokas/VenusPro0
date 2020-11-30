@@ -1,2 +1,0 @@
-# VenusPro0
-Globolizacija
